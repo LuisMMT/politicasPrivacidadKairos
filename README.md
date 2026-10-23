@@ -1,0 +1,2 @@
+# politicasPrivacidadKairos
+Politicas de privacidad
